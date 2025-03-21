@@ -1,10 +1,13 @@
 Muere Sweet Marte influencer colombiana: ¿se suicidó?, ¿está viva?
 ¿Es verdad que murió Sweet Marte, la creadora de contenido colombiana? ¿Está viva? ¿Se suicidó? Te contamos todo lo que se sabe sobre ella.
 
-Imagen de Muere Sweet Marte influencer colombiana: ¿se suicidó?, ¿está viva?
-Conoce todos los detalles sobre Sweet Marte, y la conmoción que ha causado en redes sociales. - Diseño: TuNota.com
 
-El nombre de la influencer colombiana Sweet Marte ha sido tendencia en los últimos días en las redes sociales debido a su muerte. ¿Qué se sabe sobre Sweet Marte? ¿Se suicidó? En las plataformas sociales se han multiplicado los rumores acerca de la situación de la joven. Te contamos lo que se sabe de ella.
+📺📱👉◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄🔴 https://tinyurl.com/56vdwuy6
+
 
 Las redes sociales se han convertido en el medio perfecto para miles de usuarios que intentan obtener información sobre los fuertes rumores acerca del deceso de la creadora de contenido conocida como 'Sweet Marte', después de que se filtrara contenido explícito de ella.
 
