@@ -1,11 +1,13 @@
 Sau loạt lùm xùm, Chu Thanh Huyền vừa qua gây chú ý khi tung đoạn ghi âm có người muốn hãm hại mình. Bà xã Quang Hải không ngần ngại điểm mặt chỉ tên đối phương.
 
 
-Thời gian qua Chu Thanh Huyền liên tiếp vướng vào những ồn ào trên MXH. Sau nghi vấn quảng cáo sai sự thật, bà xã Quang Hải vừa qua còn bị dân mạng tấn công vì bài đăng được cho là chê bai dư luận. Không im lặng quá lâu, vừa qua Chu Thanh Huyền đã lên tiếng trên trang cá nhân.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
-Trong bài đăng, cô cho biết từng hết lòng làm việc vì một người chị thân thiết nhưng lại bị chính người này quay lưng, tìm cách hãm hại. Chu Thanh Huyền tố cáo người chị này đã dùng truyền thông, “seeding comment” để thao túng dư luận, thậm chí còn lôi kéo trợ lý thân cận của cô làm "tay trong" nhằm đưa hàng giả vào nhà rồi báo cơ quan chức năng đến bắt giữ, khiến cô mất trắng sự nghiệp.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
-chu-thanh-huyen-1
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+
 
 Đáng chú ý, đoạn ghi âm đi kèm được cho là cuộc trò chuyện giữa trợ lý của Chu Thanh Huyền và người phụ nữ kia. Trong đó, người này thuyết phục trợ lý về phe mình với lý do “vì cô đang hẹn hò với em trai chị, sớm muộn cũng phải về cùng một phía”.
 
